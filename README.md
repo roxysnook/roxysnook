@@ -1,4 +1,4 @@
-## <img width="1747" height="1072" alt="image" src="[https://files.catbox.moe/wickfz.png](https://files.catbox.moe/ujjcd2.png)" />
+## <img width="1747" height="1072" alt="image" src="https://files.catbox.moe/ujjcd2.png" />
 
 
 
